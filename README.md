@@ -1,4 +1,4 @@
-                                   ![.](https://files.catbox.moe/5pc5h8.png)
+![.](https://files.catbox.moe/5pc5h8.png)
                        ⏾    <sub>" life and death will always lead you into love and regret . "</sub>
                     <sub>" but you have answers, and I have the key to the door of bernadette . "</sub>
 
