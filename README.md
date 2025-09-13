@@ -8,5 +8,5 @@
                 [prns.cc](https://pronouns.cc/@chapelofashes) 𐂯 [rentry.co](https://rentry.co/dystopianhellscape) 𐂯 [atabook.org](https://inlovingirony.atabook.org/) 
 
                     **the silly < 3** : @[knifestains](https://github.com/knifestains)
-![Profile views](https://komarev.com/ghpvc/?inlovingirony=m4rsxst4rs&color=662440&style=flat)
+
 
