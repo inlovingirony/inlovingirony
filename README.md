@@ -1,4 +1,4 @@
-              ![.](https://files.catbox.moe/2na6wf.png)
+            ![.](https://files.catbox.moe/2na6wf.png)
              ⏾    <sub>" you're actin' out like you want teacher's attention ?! "</sub>
                  
                   <sub>" well, I'm the principal of this eternal detention !! "</sub>
