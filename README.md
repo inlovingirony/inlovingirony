@@ -1,7 +1,6 @@
         ![.](https://files.catbox.moe/zskry6.png)
-                 ⏾    <sub>" life and death will always lead you into love and regret . "</sub>
-
-                <sub>" but you have answers, and I have the key to the door of bernadette . "</sub>
+                 ⏾    <sub>" you're actin' out like you want teacher's attention ?! "</sub>
+                <sub>" well, I'm the principal of this eternal detention !! "</sub>
 
                                        
 
