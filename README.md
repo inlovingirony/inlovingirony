@@ -1,7 +1,7 @@
               ![.](https://files.catbox.moe/zskry6.png)
-             ⏾    <sub>" life and death will always lead you into love and regret . "</sub>
+                 ⏾    <sub>" life and death will always lead you into love and regret . "</sub>
 
-              <sub>" but you have answers, and I have the key to the door of bernadette . "</sub>
+                <sub>" but you have answers, and I have the key to the door of bernadette . "</sub>
 
                                        
 
