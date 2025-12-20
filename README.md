@@ -1,7 +1,7 @@
       ![.](https://files.catbox.moe/lzx85o.png)
-                   ⏾    <sub>" good boy , bad boy "</sub>
+                   ⏾    <sub>" if blood and bones are what you are , "</sub>
                 
-                    <sub>" what ' s it gonna be? "</sub>
+                    <sub>" i suggest that you look behind you . "</sub>
 
                                        
 
