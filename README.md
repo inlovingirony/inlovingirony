@@ -1,7 +1,7 @@
       ![.](https://files.catbox.moe/lzx85o.png)
-                 ⏾    <sub>" you're actin' out like you want teacher's attention ?! "</sub>
+                   ⏾    <sub>" good boy , bad boy "</sub>
                 
-                  <sub>" well, I'm the principal of this eternal detention !! "</sub>
+                    <sub>" what ' s it gonna be? "</sub>
 
                                        
 
