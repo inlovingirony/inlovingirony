@@ -1,5 +1,5 @@
       ![.](https://files.catbox.moe/lzx85o.png)
-                   ⏾    <sub>" if blood and bones are what you are , "</sub>
+                   ⏾    <sub>" if blood and bones are what you want , "</sub>
                 
                     <sub>" i suggest that you look behind you . "</sub>
 
