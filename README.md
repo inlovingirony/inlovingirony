@@ -7,6 +7,6 @@
 
                        [prns.cc](https://pronouns.cc/@inlovingirony) 𐂯 [rentry.co](https://rentry.co/thedevilatheart)  
   
-                      **the silly < 3** : @[knifestains](https://github.com/knifestains)
+                      **the sillies < 3** : dddg ❤
 
 
