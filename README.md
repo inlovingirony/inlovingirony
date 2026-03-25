@@ -8,5 +8,6 @@
                        [prns.cc](https://pronouns.cc/@inlovingirony) 𐂯 [rentry.co](https://rentry.co/blackrealm)  
   
                        **the sillies < 3** : dddg ❤
+      ![.](https://files.catbox.moe/pst3bd.png)
 
 
