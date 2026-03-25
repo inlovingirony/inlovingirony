@@ -1,4 +1,4 @@
-      ![.](https://files.catbox.moe/lzx85o.png)
+      ![.](https://files.catbox.moe/uydq4p.png)
                    ⏾    <sub>" if blood and bones are what you want , "</sub>
                 
                     <sub>" i suggest that you look behind you . "</sub>
