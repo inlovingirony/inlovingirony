@@ -1,7 +1,7 @@
       ![.](https://files.catbox.moe/6p71cm.png)
-                   ⏾    <sub>" if blood and bones are what you want , "</sub>
+                   ⏾    <sub>" a chemical reaction , "</sub>
                 
-                    <sub>" i suggest that you look behind you . "</sub>
+                    <sub>" hysterial and useless . "</sub>
 
                                        
 
