@@ -12,4 +12,4 @@
 
                           <sub>" blinky pile!  "</sub>
 
-![.](https://files.catbox.moe/n8xy5c.gif) ![.](https://files.catbox.moe/a9viqk.gif) ![.](https://files.catbox.moe/4k71c0.gif) ![.](https://files.catbox.moe/f7o268.gif) ![.](https://files.catbox.moe/oski08.webp)
+             ![.](https://files.catbox.moe/n8xy5c.gif) ![.](https://files.catbox.moe/a9viqk.gif) ![.](https://files.catbox.moe/4k71c0.gif) ![.](https://files.catbox.moe/f7o268.gif) 
