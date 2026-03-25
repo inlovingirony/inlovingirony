@@ -1,7 +1,7 @@
       ![.](https://files.catbox.moe/6p71cm.png)
                        ⏾    <sub>" a chemical reaction , "</sub>
                 
-                       <sub>" hysterical and useless . "</sub>
+                          <sub>" hysterical and useless . "</sub>
 
                                        
 
